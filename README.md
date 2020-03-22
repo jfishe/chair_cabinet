@@ -13,3 +13,8 @@ Storage cabinet for folding dining room chairs
 ## Cleaner Dimensions (retracted handle)
 
 12x11x30 inches, Length, Width and Height
+
+## Todo
+
+- Decide on cabinet bottom.
+- Decide on wheels.
