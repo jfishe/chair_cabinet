@@ -18,3 +18,5 @@ Storage cabinet for folding dining room chairs
 
 - Decide on cabinet bottom.
 - Decide on wheels.
+- Decide on shelf with wheels as platform
+  - [18" x 42" or 18" x 60" Metro Commercial Chrome Shelf](https://www.containerstore.com/s/shelving/Shelves/metro-commercial-industrial-shelves/1qd?productId=10001000)
