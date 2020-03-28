@@ -17,6 +17,8 @@ Storage cabinet for folding dining room chairs
 
 ## Wire Shelving Dimensions
 
+[Creative Card Table Chair Storage](https://blog.theshelvingstore.com/creative-card-table-chair-storage) provides the idea for using hanging rails to frame the wire shelving.
+
 [Shelving Store Wire Shelf Dimensions](https://www.theshelvingstore.com/wire-shelving-size-guide-a/408.htm)
 
 ## Todo
